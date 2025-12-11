@@ -1,0 +1,1 @@
+# YapayZekaProje1-GenetikA-
